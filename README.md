@@ -1,4 +1,4 @@
-DISCORD LINKS: MY COMMUNITY DISCORD here - https://discord.gg/ZANcbPb65W А private server that I work on here - https://discord.gg/c4MfrHjTAJ
+DISCORD LINKS: MY COMMUNITY DISCORD here - https://discord.gg/ZANcbPb65W
 
 My Information: https://hex2000.carrd.co/
 
